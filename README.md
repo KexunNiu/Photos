@@ -1,1 +1,1 @@
-# Photos
+# Grad Photos
